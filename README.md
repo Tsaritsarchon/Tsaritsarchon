@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## Hi there 👋 
+Yes, I play Genshin impact. Yes, I'm saving for the cryo archon. No, I have a life. I said I don't have creativity, didn't I?
 <!--
 **Tsaritsarchon/Tsaritsarchon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
